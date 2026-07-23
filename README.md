@@ -37,8 +37,6 @@ This page provides a brief overview of a unique property for sale in Rayong, Tha
 
 ![View across the property](images/rayong-homestead-thailand-view-from-lower-right-corner.webp)
 
-![Evening view of the home](images/rayong-homestead-thailand-evening-light.webp)
-
 ![Covered porch overlooking the pond](images/rayong-homestead-thailand-view-of-porch-displaying-pond.webp)
 
 ![Spacious lounge and dining area](images/rayong-homestead-thailand-lounge-and-dining-area.webp)
