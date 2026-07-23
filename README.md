@@ -49,7 +49,7 @@ This page provides a brief overview of a unique property for sale in Rayong, Tha
 
 ## 📞 Interested?
 
-For the complete property description, full photo gallery and contact information, please visit:
+For the complete property description, full photo gallery, pricing and contact information, please visit:
 
 👉 **[House & Land for Sale in Rayong, Thailand](https://shopbeachwearonline.com/house-for-sale-rayong-thailand/)**
 
